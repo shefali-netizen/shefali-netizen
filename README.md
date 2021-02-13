@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @shefali-netizen, this is my Git, where I have been maintaining my tech stuff. Don't be afraid to look around! Hope you find it fun!
